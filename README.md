@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @lubdhak7414
 - 👀 I’m interested in women
 - 🌱 I’m currently learning how to simp
-- 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me https://www.facebook.com/VaiAmiBolod/ (only reach if you are girl)
 
 
